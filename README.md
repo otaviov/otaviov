@@ -1,3 +1,3 @@
-🧩 Sejam Bem Vindos 
+🧩 Sejam Bem Vindos
 
-![Alt Text](https://imgur.com/a/Di1FtEG)
+![Alt Text](https://media.giphy.com/media/fSZwmXUFW3vqUJXKTL/giphy.gif)
